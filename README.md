@@ -1,8 +1,8 @@
 # stellasu-skinhub
 
-most of my skins/edits i used since 2025
+most of my skins/edits i have used since 2025
 
-last update 08/06/2026
+last update 08/06/26
 
 [bossaura](https://stellasu.s-ul.eu/y2iaCvCu)
 ![bossaura](https://stellasu.s-ul.eu/TD6vU6wM)
