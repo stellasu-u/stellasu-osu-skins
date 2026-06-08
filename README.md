@@ -1,5 +1,14 @@
 # stellasu-skinhub
 
+most of my skins/edits i used since 2025
+last update 08/06/2026
+
+[bossaura](https://stellasu.s-ul.eu/y2iaCvCu)
+![bossaura](https://stellasu.s-ul.eu/TD6vU6wM)
+
+[cinia](https://stellasu.s-ul.eu/a5peD0yX)
+![cinia](https://stellasu.s-ul.eu/dwf6nXqM)
+
 [00xfej5edit](https://drive.google.com/uc?export=download&id=1yZecV8yY72FZdD8mS6mtA5FWngRiO1Z6)
 ![00xfej5edit](https://stellasu.s-ul.eu/qRNy5LFt)
 
