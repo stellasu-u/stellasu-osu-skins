@@ -4,8 +4,8 @@ most of my skins/edits i have used since 2025
 
 latest update 10/06/26
 
-[israel tech](https://stellasu.s-ul.eu/7D9Lb2IB)
-![israel tech](https://stellasu.s-ul.eu/TgPHpH6o)
+[rudj 2026](https://stellasu.s-ul.eu/7D9Lb2IB)
+![rudj 2026](https://stellasu.s-ul.eu/TgPHpH6o)
 
 [bossaura](https://stellasu.s-ul.eu/y2iaCvCu)
 ![bossaura](https://stellasu.s-ul.eu/TD6vU6wM)
