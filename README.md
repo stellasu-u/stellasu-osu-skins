@@ -2,7 +2,10 @@
 
 most of my skins/edits i have used since 2025
 
-latest update 10/06/26
+latest update 20/06/26
+
+[love themes](https://stellasu.s-ul.eu/udUCIRca)
+![love themes](https://stellasu.s-ul.eu/kDowmHZe)
 
 [rudj 2026](https://stellasu.s-ul.eu/7D9Lb2IB)
 ![rudj 2026](https://stellasu.s-ul.eu/TgPHpH6o)
