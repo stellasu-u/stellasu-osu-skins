@@ -2,7 +2,11 @@
 
 most of my skins/edits i have used since 2025
 
-latest update 13/07/26
+latest update 20/07/26
+
+
+[kiimogchii](https://stellasu.s-ul.eu/4kN2kPTK)
+![kiimogchii](https://stellasu.s-ul.eu/TEssxvvI)
 
 [yebalnik edit](https://stellasu.s-ul.eu/r6yglliH)
 ![yebalnik edit](https://stellasu.s-ul.eu/ynA7GKv6)
