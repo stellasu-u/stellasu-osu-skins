@@ -4,6 +4,8 @@ most of my skins/edits i have used since 2025
 
 latest update 20/07/26
 
+[=)](https://stellasu.s-ul.eu/N1a2C6ib)
+![=)](https://stellasu.s-ul.eu/nty85Wig)
 
 [kiimogchii](https://stellasu.s-ul.eu/4kN2kPTK)
 ![kiimogchii](https://stellasu.s-ul.eu/TEssxvvI)
