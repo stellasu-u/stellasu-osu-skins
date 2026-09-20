@@ -2,7 +2,10 @@
 
 most of my skins/edits i have used since 2025
 
-latest update 01/09/26
+latest update 20/09/26
+
+[stellasu decaten](https://stellasu.s-ul.eu/HAMNuwKn)
+![stellasu decaten](https://stellasu.s-ul.eu/aJ37rr3w)
 
 [=)](https://stellasu.s-ul.eu/N1a2C6ib)
 ![=)](https://stellasu.s-ul.eu/nty85Wig)
